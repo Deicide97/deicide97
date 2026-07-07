@@ -23,6 +23,6 @@ Técnico en Sistemas con formación avanzada en Tecnico en Control de la Segurid
 ### 💼 Conéctate conmigo
 
 * 📩 **Correo electrónico:** [daisymira2@gmail.com](mailto:daisymira2@gmail.com)
-* 💼 **LinkedIn:** [(https://://linkedin.com/daisy-mira-62a688197)](https://://linkedin.com/daisy-mira-62a688197)
+* 💼 **LinkedIn:** [(https://linkedin.com/daisy-mira-62a688197)](https://://linkedin.com/daisy-mira-62a688197)
 
 *Nota: Para acceder a mi Hoja de Vida completa y actualizada en formato PDF o solicitar referencias laborales, por favor contáctame directamente a través de mi correo o perfil de LinkedIn.*
